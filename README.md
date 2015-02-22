@@ -1,0 +1,2 @@
+# lighthousechristianschool.github.io
+Website
